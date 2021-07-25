@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Dibyajit44
-- 👀 I’m interested in ...Football 
+- 👀 I’m interested in ...Football and coding.
 - 🌱 I’m currently learning ...Discord server designing,learning bots etc.
 - 💞️ I’m looking to collaborate on ...Discord 
 - 📫 How to reach me ...instagram - dibyajit_d44 
